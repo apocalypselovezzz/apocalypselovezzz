@@ -6,3 +6,4 @@ I'm an impatient person at times, i'm trying my best to control it. I'm sorry if
 Dni: basic dni criteria, annoying trolls, bunnysuits / maid skins, problematic, rude. 
 
 I really appreciate cuddles. ♡
+94c1daba-96c6-48b0-99ee-ef499fda640e.gif
