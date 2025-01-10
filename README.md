@@ -4,6 +4,6 @@ Minor. I make nsfw, curses or insults jokes (ik boundaries, i'll do my best to i
 
 I'm an impatient person at times, i'm trying my best to control it. I'm sorry if i dry text or late respond, I might be doing smth. I'm very awkward with new ppl.
 
-Dni: basic dni criteria, annoying trolls, bunnysuits / maid skins, problematic and rude. 
+Dni: basic dni criteria, annoying trolls, bunnysuits / maid skins, problematic, wild fans, OB fans, HH fans and rude.
 
 I really appreciate cuddles n kisses. ♡
