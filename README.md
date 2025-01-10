@@ -8,4 +8,4 @@ Dni: basic dni criteria, annoying trolls, bunnysuits / maid skins, problematic a
 
 I really appreciate cuddles n kisses. ♡
 
-whisper to interact w me .. <3
+whisper to interact w me.
