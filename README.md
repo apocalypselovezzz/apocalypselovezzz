@@ -6,7 +6,4 @@ I'm an impatient person at times, i'm trying my best to control it. I'm sorry if
 
 Dni: basic dni criteria, annoying trolls, bunnysuits / maid skins, problematic and rude. 
 
-I really appreciate cuddles. ♡
-
-SIGN ATA 
-https://cherivie.atabook.org
+I really appreciate cuddles n kisses. ♡
